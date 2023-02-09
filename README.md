@@ -8,7 +8,7 @@
 
 - 📫 Mail me at: **harshitaacharya03@gmail.com**
 
-- ⚡ My Mantra **Coffee & Code**
+- ⚡ My Mantra **Coffee&Code**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
